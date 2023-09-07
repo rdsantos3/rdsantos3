@@ -1,6 +1,9 @@
 Raphael dos Santos
+
 Economics Ph.D. Candidate at ASU 
-interested in Applied Econometrics, Policy Evaluation, and Economics of Education
+
+Interested in Applied Econometrics, Policy Evaluation, and Economics of Education
+
 Contact: rdossan1@asu.edu
 
 <!---
